@@ -27,4 +27,3 @@ Experienced in
 
 * **Email:** cheer.chokwit@gmail.com
 * **LinkedIn:** [https://www.linkedin.com/in/cheer-chokwittaya/]
-* **Website:** [https://cheer.chokwittaya.com]
